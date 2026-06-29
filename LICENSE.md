@@ -1,4 +1,4 @@
-# 
+# VIP momentum trading bot herramientas for Mac OS | Profesional momentum trading bot herramientas for PC Windows. Featuring pools de liquidez DEX and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
